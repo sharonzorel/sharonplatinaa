@@ -1,0 +1,2 @@
+# sharonplatinaa
+Baruuu buat bjirr
